@@ -1,0 +1,1 @@
+"# global_sudy.uz" 
